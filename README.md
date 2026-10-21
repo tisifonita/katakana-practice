@@ -1,1 +1,0 @@
-# katakana-practice
